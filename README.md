@@ -12,4 +12,5 @@
 - ⚡ Fun fact: ... I'm a skilled typist
 
 - Reach me out at my LinkedIn.
-- @
+- Helloooooo!
+- Seize the day.
