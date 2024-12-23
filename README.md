@@ -13,5 +13,6 @@
 
 - Reach me out at my LinkedIn.
 - Helloooooo!!!
-- Seize the day.
+- Seize the day and have fun.
 - Hey
+  
