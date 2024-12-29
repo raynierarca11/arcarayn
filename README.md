@@ -14,5 +14,5 @@
 - Reach me out at my LinkedIn.
 - Helloooooo!!!
 - Seize the day and have fun.
-- Hey
+<!-- Hey be consistent and be yourself. 
   
