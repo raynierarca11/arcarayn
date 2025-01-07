@@ -12,8 +12,9 @@
 - ⚡ Fun fact: ... I'm a skilled typist
 
 - Reach me out at my LinkedIn.
-- Helloooooo!!!
+- @
 - Seize the day and have fun.
+- 
 <!-- Hey be consistent and be yourself.
 
 Finish
