@@ -13,7 +13,7 @@
 
 - Reach me out at my LinkedIn.
 - Seize the day and have fun.
-- 
+- Carpe Diem
 
 This is ongoing section.
 <!-- Hey be consistent and be yourself.
