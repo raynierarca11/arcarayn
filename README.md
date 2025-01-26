@@ -16,6 +16,7 @@
 - Carpe Diem
 
 This is ongoing section.
+Currently in bootcamp
 <!-- Hey be consistent and be yourself.
 
 Finish..
