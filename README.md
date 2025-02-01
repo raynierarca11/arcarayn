@@ -10,7 +10,7 @@
 - 📫 How to reach me: ... hehe
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I'm a skilled typist
-- ♏
+- ♏ Scorpio
 
 - Reach me out at my LinkedIn.
 - Seize the day and have fun.
