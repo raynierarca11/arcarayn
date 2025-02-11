@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate on ... web development
 - 🤔 I’m looking for help with ... change
 - 💬 Ask me about ... python
-- 📫 How to reach me: ... hehe
+- 📫 How to reach me: ... rayniergarridoarca@gmail.com
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I'm a skilled typist
 - ♏ Scorpio
@@ -22,8 +22,7 @@ Ongoing ----
 
 Finishing courses in udemy.
 
-Learn each day
-I have an interview for today!!
+Be productive.
 
 Feb 8 2025.
 
