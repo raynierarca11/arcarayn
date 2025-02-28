@@ -1,6 +1,6 @@
 # About me
 
-:sparkles: I'm currently upskilling my skillsets. <br> <br>
+:sparkles: I'm currently upskilling my skillsets. <br> <br> ...
 
 - 🔭 I’m currently working on ... a project and myself.
 - 🌱 I’m currently learning ... Ruby
