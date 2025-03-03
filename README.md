@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning ... Ruby
 - 👯 I’m looking to collaborate on ... web development
 - 🤔 I’m looking for help with ... change
-- 💬 Ask me about ... python
+- 💬 Ask me about ... python and
 - 📫 How to reach me: ... rayniergarridoarca@gmail.com
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I'm a skilled typist
