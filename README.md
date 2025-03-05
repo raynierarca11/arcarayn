@@ -14,7 +14,7 @@
 
 - Reach me out at my LinkedIn.
 - Seize the day and have fun.
-- Carpe Diem!
+- Carpe Diem! . . 
 
 This is ongoing section. . .
 
