@@ -10,7 +10,7 @@
 - 📫 How to reach me: ... rayniergarridoarca@gmail.com
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I'm a skilled typist
-- ♏ Scorpio
+- ♏ Scorpio a
 
 - Reach me out at my LinkedIn.
 - Seize the day and have fun.
