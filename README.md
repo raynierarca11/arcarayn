@@ -16,7 +16,7 @@
 - Seize the day and have fun.
 - Carpe Diem! . . 
 
-This is ongoing section. . .
+This is ongoing section. . . .
 
 Ongoing ----
 
