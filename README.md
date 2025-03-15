@@ -3,7 +3,7 @@
 :sparkles: I'm currently upskilling my skillsets. <br> <br> ...  .
 
 - 🔭 I’m currently working on ... a project and myself.
-- 🌱 I’m currently learning ... Ruby
+- 🌱 I’m currently learning ... Rubyeawe
 - 👯 I’m looking to collaborate on ... web development
 - 🤔 I’m looking for help with ... change.
 - 💬 Ask me about ... python and
