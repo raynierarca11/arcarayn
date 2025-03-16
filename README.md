@@ -9,7 +9,7 @@
 - 💬 Ask me about ... python and
 - 📫 How to reach me: ... rayniergarridoarca@gmail.com
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... I'm a skilled typist
+- ⚡ Fun fact: ... I'm a skilled typiste
 - ♏ Scorpio a
 
 - Reach me out at my LinkedIn.
