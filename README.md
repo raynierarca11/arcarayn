@@ -14,7 +14,7 @@
 
 - Reach me out at my LinkedIn.
 - Seize the day and have fun.
-- Carpe Diem! . . 
+- Carpe Diem! . . .
 
 This is ongoing section. . . .
 
@@ -29,6 +29,9 @@ yes
 Feb 12, 2025..
 
 <!-- Hey be consistent and be yourself.
+
+
+KAKAPOOY KAPIN PA SLOW LEARNER KA, THEN TUN AN MO NETWORKING! MARCH 28, 2025. TAPOS ANG PROCESS!! SIGH
 
 Finish..
 On time..
