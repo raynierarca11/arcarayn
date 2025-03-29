@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate on ... web development
 - 🤔 I’m looking for help with ... change.
 - 💬 Ask me about ... python and
-- 📫 How to reach me: ... rayniergarridoarca@gmail.com
+- 📫 How to reach me: ... rayniergarridoarca@gmail.comd
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I'm a skilled typiste
 - ♏ Scorpio.
