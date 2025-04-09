@@ -11,7 +11,7 @@
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I'm a skilled typiste
 - ♏ Scorpio.
-ds
+Sigh.
 - Reach me out at my LinkedIn.
 - Seize the day and have fun.
 - Carpe Diem! . . . ,
