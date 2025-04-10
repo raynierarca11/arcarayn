@@ -19,7 +19,7 @@ Sigh.
 This is ongoing section. . . .
 
 Ongoing ----
-
+.
 Finishing courses in udemy.
 
 Be productive.bbe
