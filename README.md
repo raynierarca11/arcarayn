@@ -5,7 +5,7 @@
 - 🔭 I’m currently working on ... a project and myself..
 - 🌱 I’m currently learning ... Rubyeawe
 - 👯 I’m looking to collaborate on ... web development....
-- 🤔 I’m looking for help with ... change.......,
+- 🤔 I’m looking for help with ... change.......,..
 - 💬 Ask me about ... python and.....
 - 📫 How to reach me: ... rayniergarridoarca@gmail.comd.
 - 😄 Pronouns: ... he/him
